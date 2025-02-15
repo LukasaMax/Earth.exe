@@ -1,2 +1,19 @@
 # Earth.exe
-Terrible malware i made.
+RUN THIS AT YOUR OWN RISK
+RUN THIS AT YOUR OWN RISK
+RUN THIS AT YOUR OWN RISK
+RUN THIS AT YOUR OWN RISK
+RUN THIS AT YOUR OWN RISK
+RUN THIS AT YOUR OWN RISK
+RUN THIS AT YOUR OWN RISK
+RUN THIS AT YOUR OWN RISK
+
+
+
+How do i install this?
+
+Install Earth.exe and done!
+
+HOW TO GET RID OF THIS, WHAT IS HAPPENING!!!11!!!!1!
+
+You cannot get rid of this once you have executed it.
