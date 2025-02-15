@@ -12,7 +12,7 @@ RUN THIS AT YOUR OWN RISK
 
 How do i install this?
 
-Install Earth.exe and done!
+Install Earth.exe and if you want to, you can download the icon for it.
 
 HOW TO GET RID OF THIS, WHAT IS HAPPENING!!!11!!!!1!
 
